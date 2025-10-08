@@ -1,1 +1,1 @@
-# theirwordskill
+I made this because I’m honestly just bored and felt like trolling a bit. There’s nothing much going on, and sometimes I just want to stir things up for fun—not in a bad way, just to make things a little more lively. I guess it’s my way of entertaining myself when everything feels too plain. I like seeing people’s reactions, laughing a bit, and breaking the silence. It’s just harmless fun to keep my day from feeling dull.
